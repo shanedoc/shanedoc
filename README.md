@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shanedoc
-- 👀 I’m interested in (boy&men&cat)
+- 👀 I’m interested in (dog&cat)
 - 🌱 I’m currently learning (go&gin)
 - 💞️ I’m looking to collaborate on (peace&love)
 - 📫 How to reach me (at there)
